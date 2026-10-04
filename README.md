@@ -1,2 +1,2 @@
 𝙼𝚎 𝚌𝚘𝚛𝚎:
-<p align="center"><img width="538" height="345" alt="Screenshot_113" src="https://github.com/user-attachments/assets/4d90dc7d-1507-4099-80fc-8e72fcd4f714" /></p>
+<p align="center"><img width="463" height="508" alt="Screenshot_136" src="https://github.com/user-attachments/assets/78baf983-950e-413a-95f7-0db93dfd9a62" /></p>
